@@ -1,4 +1,4 @@
-# samastha-homes-
+# samastha-homes- trivandrum
 the top construction company in trivandrum:
 Building Dreams with Samastha Homes: A Truly Exceptional Experience
 
@@ -14,4 +14,6 @@ In addition to their excellent construction and design skills, what really stood
 
 Overall, my experience with Samastha Homes was nothing short of fantastic. They not only built my dream home but also made the entire process enjoyable and stress-free. If you’re looking for a construction partner who values your vision, delivers exceptional quality, and ensures a smooth and hassle-free experience, I highly recommend Samastha Homes.
 
-They are more than just builders; they are dream makers.
+They are more than just builders; they are dream makers. 
+Click here for more details: https://www.samasthahomes.com/
+
